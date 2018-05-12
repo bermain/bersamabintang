@@ -1,0 +1,2 @@
+# bersamabintang
+selamaadaaku
